@@ -9,7 +9,7 @@
 -[![Watch the video](https://github.com/TANJIROKAMADO187/REPO1/blob/main/tanjiro-tanjiro-hinokami-kagura.gif?raw=true)
 -[![Watch the video](https://raw.githubusercontent.com/TANJIROKAMADO187/REPO1/main/tanjiro-kamado-sun-breathing-l47d2q3kznypr4dr.webp)
 -[![Watch the video](https://raw.githubusercontent.com/TANJIROKAMADO187/REPO1/main/main-qimg-8b40ae32dea31bb0b7dbded074959d4a.webp)
--[![Watch the video](https://raw.githubusercontent.com/TANJIROKAMADO187/REPO1/main/main-qimg-8b40ae32dea31bb0b7dbded074959d4a.webp)
+-[![Watch the video](https://github.com/TANJIROKAMADO187/REPO1/blob/main/tanjiro-kamado-kamado-tanjiro.gif?raw=true)
 -[![Watch the video](https://github.com/TANJIROKAMADO187/REPO1/blob/main/364422138304a7067a8077d21c192f3a.gif?raw=true)
 <!---
 TANJIROKAMADO187/TANJIROKAMADO187 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
