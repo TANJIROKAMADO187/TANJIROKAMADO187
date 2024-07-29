@@ -5,6 +5,7 @@
 - 📫 How to reach me by your crow or visit the hasira arch
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
+- 
 -[![Watch the video](https://github.com/TANJIROKAMADO187/REPO1/blob/main/171970590-61e55510-c891-4509-aefc-1e8136ca9ee8.gif?raw=true)
 
 <!---
