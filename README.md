@@ -6,7 +6,7 @@
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 - <p>
-  [![Watch the video](https://github.com/TANJIROKAMADO187/REPO1/blob/main/171970590-61e55510-c891-4509-aefc-1e8136ca9ee8.gif?raw=true)
+-[![Watch the video](https://github.com/TANJIROKAMADO187/REPO1/blob/main/171970590-61e55510-c891-4509-aefc-1e8136ca9ee8.gif?raw=true)
 </p>
  
 
